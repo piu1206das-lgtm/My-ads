@@ -1,1 +1,1 @@
-# My-ads
+google.com, pub-1098197405421963, DIRECT, f08c47fec0942fa0
